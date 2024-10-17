@@ -1,1 +1,1 @@
-haiiii ich bin. nastywishful on github dot com and like everything else. i know english and german (kinda) and i'm AUTISTIC wtf!!! love yume nikki like more than anyone else out there... idk how to program much i wanna learn javascript and c++ and i already know html/css and i'm working on a super sick website stay tuned.
+hi
